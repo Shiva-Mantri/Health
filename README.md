@@ -1,4 +1,5 @@
 #### Health and Fitness - Yoga, Meditation, and Running
+Free tips and links. Your local library or your employer should have access to premium digital curated content including videos, guided classes etc.
 
 ## Yoga
 - Stretch your back
