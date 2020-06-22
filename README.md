@@ -1,7 +1,7 @@
 #### Health and Fitness - Yoga, Meditation, and Running
 
 ## Yoga
-- Back - Stretch your back
+- Stretch your back
   - https://www.healthline.com/health/fitness-exercise/yoga-for-back-pain
   - https://www.everydayhealth.com/back-pain-pictures/best-yoga-poses-to-soothe-back-pain.aspx
 
